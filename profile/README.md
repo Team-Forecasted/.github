@@ -10,6 +10,8 @@ We do things sometimes
 
 it's gone. without warning, too. didn't get to say goodbye. i miss you, hometown incidents dot com.
 
+just fucking kidding assholes! its back baby! um, i dont really. Wave 3? yeah. yeah i think so.
+
 ### Chapter 0
 
 why did you have to die on me why why why why why WHY WHY IT WAS EVERYTHING A DELTARUNE FANGAME WAS MEANT TO B LOOP
