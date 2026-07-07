@@ -22,7 +22,7 @@ why did you have to die on me why why why why why WHY WHY IT WAS EVERYTHING A DE
 
 A YouTube webseries (well, two, technically) all about a guy playing a 100% legit copy of Deltarune. Is there more than that? Who knows! We sure don't.
 
-You can find the code for the Kristal mod used in the first series (part of Hometown Incidents (I miss hometown incidents)) [here](https://github.com/Team-Forecasted/funny-feline-depths).
+You can find the code for the Kristal **PROJECT** used in the first series (part of Hometown Incidents (I miss hometown incidents)) [here](https://github.com/Team-Forecasted/funny-feline-depths).
 
 https://www.youtube.com/@funnyfeline1
 
